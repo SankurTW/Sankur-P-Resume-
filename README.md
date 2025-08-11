@@ -1,2 +1,2 @@
-# Sankur-P-Resume-
+# Sankur-P-Resume
 My professional resume 
